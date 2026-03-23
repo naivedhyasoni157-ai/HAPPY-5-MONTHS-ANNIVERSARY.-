@@ -1,5 +1,4 @@
 # MY DEAR BOOBUUUU ❤️🙇🏻
-<!DOCTYPE html>
 <html lang="hi">
 <head>
     <meta charset="UTF-8">
